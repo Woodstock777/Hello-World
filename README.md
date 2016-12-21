@@ -1,2 +1,3 @@
 # Hello-World
 My first repositroy
+Hi... I don't know the first thing about coding!  Excited to learn though.  I've got background in three different industries so I figure it's time to expand again.  Live audio/entertainment, Live broadcast(Mobile TV engineer, Systems Engineer for microchip manufacturing, and now... 
